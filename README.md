@@ -16,4 +16,4 @@
 
 除了在线观看，很多平台还支持影片下载。用户可以根据需要下载高清或超清的视频，方便在没有网络连接时观看。下载功能增加了用户的灵活性，让他们可以随时随地享受电影。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/tsk543210/xxriben0913 ）</span>
